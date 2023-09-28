@@ -1,6 +1,6 @@
 - 👋 We are @msanidi 🌐
 - 👀 Open to collaborating 💪🏾
-- 🚀 Building Web3 👨🏿‍💻
+- 🚀 Actively learning Web 3.0 👨🏿‍💻
 - 🫂 Join us <a href=https://msanidi.online/register target=_blank> here </a> ☕
 
 <!---
